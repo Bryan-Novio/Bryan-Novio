@@ -4,7 +4,7 @@
 - 💞️ At present I’m looking to collaborate on Paleoecology especially Holocene Diversity
 - 📫 How to reach me noviob@natur.cuni.cz or noviobryan@gmail.com
 - 😄 Pronouns: He/Him/His
-- ⚡ Fun fact: Loves plants and bugs
+- ⚡ Fun fact: Loves plants, bugs, music...
 
 <!---
 Bryan-Novio/Bryan-Novio is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
